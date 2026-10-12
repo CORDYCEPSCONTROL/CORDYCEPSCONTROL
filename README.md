@@ -1,7 +1,7 @@
 best viewed on computer ᰔ
 <img src="https://pbs.twimg.com/media/HGfGroWboAAmVDo?format=jpg&amp;name=4096x4096" alt="Image"/>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤPERI / CORDY
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤPERI / SOM
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆⊱༻𖥸༺⊰⋆
 
