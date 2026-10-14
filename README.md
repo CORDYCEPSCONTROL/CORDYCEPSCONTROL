@@ -19,6 +19,6 @@ best viewed on computer ᰔ
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆ ⠀
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀IWC AT ALL TIMES , -13 & 25+ DNI
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀IWC & C+H AT ALL TIMES , -13 & 25+ DNI
 
 ![](https://komarev.com/ghpvc/?username=deerlightfully&label=snakes&style=flat&color=green)
