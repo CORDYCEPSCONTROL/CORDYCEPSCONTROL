@@ -21,5 +21,4 @@ best viewed on computer ᰔ
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀IWC AT ALL TIMES , -13 & 25+ DNI
 
-
-⠀ ⠀ ⠀ ⠀ ⠀![](https://komarev.com/ghpvc/?username=deerlightfully&label=snakes&style=flat&color=green)
+![](https://komarev.com/ghpvc/?username=CORDYCEPSCONTROL&label=snakes&style=flat&color=green)
