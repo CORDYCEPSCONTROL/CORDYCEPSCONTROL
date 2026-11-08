@@ -1,25 +1,23 @@
-best viewed on computer ᰔ
+<img src="https://i.pinimg.com/736x/98/5f/29/985f29fc11bc71e4465ba01785e35748.jpg" />
 
-<img src="https://pbs.twimg.com/media/HGfGroWboAAmVDo?format=jpg&amp;name=4096x4096" alt="Image"/>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤPERI / SOM
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀PERI / SOM
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⋆⊱༻𖥸༺⊰⋆
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀  ㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
-ㅤㅤㅤㅤㅤㅤ"you just dont know it yet but you 
+⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ "this is 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤlove me and i love you the same!"
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀ ㅤ⠀⠀ ⠀ ⠀ ⠀ a wip!"
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ANY 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ANY / ALL
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀/ 
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀{ 17 }
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ALL ,
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆ ⠀
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆ ⠀
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀IWC & C+H AT ALL TIMES , -13 & 25+ DNI
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀IWC & C+H AT ALL TIMES , -13 & 25+ DNI
-
-![](https://komarev.com/ghpvc/?username=deerlightfully&label=snakes&style=flat&color=green)
+![](https://komarev.com/ghpvc/?username=CORDYCEPSCONTROL&label=little+ones&style=flat&color=blue)
