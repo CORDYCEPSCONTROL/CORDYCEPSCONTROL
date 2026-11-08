@@ -6,9 +6,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀  ㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
-⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ "this is 
+⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ " once upon 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀ ㅤ⠀⠀ ⠀ ⠀ ⠀ a wip!"
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀ ㅤ⠀⠀ ⠀ ⠀ ⠀a time ,, "
 
 ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
@@ -20,4 +20,4 @@
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ IWC & C+H AT ALL TIMES , -13 & 25+ DNI
 
-![](https://komarev.com/ghpvc/?username=CORDYCEPSCONTROL&label=little+ones&style=flat&color=blue)
+![](https://komarev.com/ghpvc/?username=CORDYCEPSCONTROL&label=knights&style=flat&color=blue)
