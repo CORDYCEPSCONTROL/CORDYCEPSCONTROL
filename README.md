@@ -6,18 +6,18 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀  ㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
-⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ "this is 
+⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ "this is 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀⠀ ⠀ ⠀ ⠀ ㅤ⠀⠀ ⠀ ⠀ ⠀ a wip!"
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⋆⊱༻𖥸༺⊰⋆
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀ ⠀ANY / ALL
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀{ 17 }
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀ ⠀ { 17 }
 
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ ⋆⊱༻𖥸༺⊰⋆ ⠀
+<img src="https://i.pinimg.com/736x/84/0f/30/840f30ed0a6f0d49b855da23bcc1937b.jpg" alt="Story pin image"/>
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀IWC & C+H AT ALL TIMES , -13 & 25+ DNI
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀ ⠀⠀⠀ ⠀ ⠀ IWC & C+H AT ALL TIMES , -13 & 25+ DNI
 
 ![](https://komarev.com/ghpvc/?username=CORDYCEPSCONTROL&label=little+ones&style=flat&color=blue)
